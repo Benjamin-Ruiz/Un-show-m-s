@@ -7,3 +7,4 @@
 Para más información sobre la serie, visitar: [Fandom](https://regularshow.fandom.com/es/wiki/Un_Show_M%C3%A1s_Wiki)
 
 
+![captura](download.jpg) 
